@@ -1,5 +1,7 @@
 # Virtues
 
+Source: [www.tehillim-center.co.il/sgulot](https://www.tehillim-center.co.il/sgulot)
+
 Virtues for finding grace
 
 Virtues of Wisdom and Good Memory
